@@ -9,6 +9,8 @@ Dhye 是尼泊爾北部 Mustang 區域的一個村落，那裡作物矮突、一
 
 他們只是**尼泊爾的氣候難民**的一個縮影。
 
+![那裡作物矮突、一片枯寂，水是稀有之物](https://raw.githubusercontent.com/jonexiu/earth-of-today-contents/master/news/2020-04-15/nepal-dhye.jpg)
+
 整個喜馬拉雅區域的南亞人的生計，都經受著氣候變遷的威脅。重度依靠水資源的尼泊爾北部山民，只能遷徙到海拔較低的地方繼續生存。
 
 延綿兩千四百多公里的喜馬拉雅山區的**[冰川正在急速融化](https://www.sciencedaily.com/releases/2019/06/190619142538.htm)**，曾經的菜地變的貧瘠，牧牛人找不到可以放牧的草場。科學家們發現，因為氣溫上升，這片高地上已經開始出現蚊子，[**瘧疾和登革熱**可能會隨之傳播到更廣的區域](https://www.sciencedaily.com/releases/2014/09/140925082235.htm)。
